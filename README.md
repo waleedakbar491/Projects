@@ -1,2 +1,2 @@
 # Projects
-Click on branches to see the projects, Thanks
+Click on branches to see more projects, Thanks
